@@ -1,1 +1,0 @@
-# zikribayraktar.github.io
